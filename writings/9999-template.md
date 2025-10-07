@@ -1,4 +1,3 @@
 # Template
 
 [Your content here]
-
