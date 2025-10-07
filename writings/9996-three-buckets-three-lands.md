@@ -461,3 +461,7 @@ Begin. 🧡
 *This essay is a companion to "Three Paths, Three Lands" and "The Digital Sage," offering practical financial strategy for building resilience in uncertain times. May it serve all who are transforming paper wealth into real wealth, capital into community, and fear into fertile ground.*
 
 *October 2025*
+
+---
+
+← [Next: 9995 - Two Journeys into Shadow](9995-two-journeys-into-shadow.md) | [Previous: 9997 - Three Paths, Three Lands](9997-three-paths-three-lands.md) | [Index: 9999 - Template](9999-template.md) →
