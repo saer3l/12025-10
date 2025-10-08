@@ -266,3 +266,7 @@ Begin. 🧡
 
 *October 2025*
 
+---
+
+← [Next: 9994 - Love Words for the Universe](9994-love-words-for-the-universe.md) | [Previous: 9996 - Three Buckets, Three Lands](9996-three-buckets-three-lands.md) | [Index: 9999 - Template](9999-template.md) →
+
